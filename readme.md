@@ -1,1 +1,1 @@
-exercises by muktaren muatez
+all muatez exercises
